@@ -1,0 +1,1 @@
+# gemini api key AIzaSyBZtV5S80pyy68o8VIRKJ120D7IksceGCU
